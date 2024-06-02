@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @DKeele23
-- 👀 I’m interested in helping my son become a pro athlete. 
+- 👋 Hi, I’m @DKeele23 
 - 🌱 I’m currently learning how to get a nonprofit and adverstising...
 - 💞️ I’m looking to collaborate on growing my network...
 - 📫 How to reach me 2707464371..
